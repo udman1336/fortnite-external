@@ -1,3 +1,3 @@
 little updated fortnite external
 
-Update Count: 6
+Update Count: 7
